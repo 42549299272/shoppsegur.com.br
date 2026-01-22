@@ -1,0 +1,1 @@
+# shoppsegur.com.br
